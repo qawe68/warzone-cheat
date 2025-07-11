@@ -213,6 +213,4 @@ Our security team monitors and patches any vulnerabilities to maintain full stea
 
 Join a thriving, loyal user base with zero reported detections since release.
 
----
-
-**Warzone Cheat** gives you more than an edge—it gives you control. Be smart. Be fast. Be unbeatable. 🎯
+**Warzone Cheat** gives you more than an edge it gives you control. Be smart. Be fast. Be unbeatable. 🎯
